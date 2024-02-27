@@ -1,0 +1,1 @@
+{Catan Santa Claus Scenario %!s(bool=true)} by {Vandhanen %!s(bool=true)} on Thingiverse: https://www.thingiverse.com/thing:4070364

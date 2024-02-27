@@ -1,0 +1,1 @@
+Catan player stand for catan-style boardgame 2.0 by Zlomy on Thingiverse: https://www.thingiverse.com/thing:2867435

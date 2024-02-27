@@ -1,0 +1,1 @@
+the explorers (scenario: settler catan style) by Dakanzla on Thingiverse: https://www.thingiverse.com/thing:1410221

@@ -1,0 +1,1 @@
+Catan largest army trophy by jornd on Thingiverse: https://www.thingiverse.com/thing:2349867
